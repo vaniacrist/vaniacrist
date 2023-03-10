@@ -1,18 +1,9 @@
-### Hi there 👋
+# Olá Pessoal
+_Meu nome é Vania Cristina dos Santos , tenho 48 anos, atualmente estou desempregada e cursando Frond- end _
+_Nao possuo grandes experiências, nao tenho tenho faculdade, mas trabalhei por 12 anos como inspetora em uma gráfica multinacional
 
 
-**vaniacrist/vaniacrist** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: 
-<Eu Vania Cristina dos Santos> no momento estou desempregada à procura de uma nova perspectiva profissional***
-<Procuro novos conhecimentos e me aperfeiçoar naquilo que nunca vi antes, sair da zona de conforto/ /
-_Acredito que nunca é tarde pra começar ter interesses de conhecimentos na área de tecnologia ***
+
+ 
