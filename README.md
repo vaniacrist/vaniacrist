@@ -6,4 +6,4 @@ _por 7 anos e agora estou em busca de para melhor , e pra isso preciso  me dedic
 :grinning:Pois nunca é tarde para buscar nossos objetivos, através dessa oportunidade ,fazendo esse curso está sendo a chance para inserir no mercado de trabalho._ 
 acredite que nenhum de nos já nasceu com jeito pra super heroi nossos somhos a gente é que constroi
 E vencendo os limites escalando fortalezas cónquistando o impossível pela fé
-Campeão , vencedor Deus dá asa faz seu võo 
+Campeão , vencedor Deus dá asa faz seu võo 🦅
